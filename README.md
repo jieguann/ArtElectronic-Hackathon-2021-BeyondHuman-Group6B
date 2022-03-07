@@ -11,3 +11,4 @@ https://user-images.githubusercontent.com/60665347/157100156-91565536-6d61-45dc-
 
 https://user-images.githubusercontent.com/60665347/157100166-62b6972a-02c7-4e00-a58c-3b91464ee5c7.mov
 
+https://ars.electronica.art/newdigitaldeal/de/aiecosystems/
